@@ -1,5 +1,0 @@
-- 👋 Hi, I’m @zh-adrian
-- 👀 I’m interested in how to make money
-- 🌱 I’m currently learning how to make money
-- 💞️ I’m looking to collaborate on how to make money
-- 📫 How to reach me email : 1091280286@qq.com
